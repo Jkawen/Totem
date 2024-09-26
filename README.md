@@ -5,8 +5,5 @@ Linguagem utilizada
 .JavaScript
 
 ♦♦♦
-Quais quer sujestões 
+Sugestões 
 <a href= "https://www.instagram.com/jkawen/">Intagram</a>
-
-♦♦♦
-Video 
